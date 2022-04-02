@@ -1,0 +1,4 @@
+- Hi, I’m Faith! :)
+- I’m here for help with my exams.
+- I'm Dutch and I need to practice for my English exams.
+- Btw, I have literally no idea how this works so if someone could help me, pls.
